@@ -23,8 +23,5 @@ Here's a more concise and impactful way to describe your Sparks Foundation GRIP 
 
 **Website:** [https://www.thesparksfoundationsingapore.org](https://www.thesparksfoundationsingapore.org)
 
-This revised description highlights the project's value proposition, functionalities, benefits, and context, making it more compelling and informative. 
-
-I hope this helps!
 
 
